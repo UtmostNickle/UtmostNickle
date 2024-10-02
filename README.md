@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @UtmostNickle
+- 🦉 I’m interested in (Mathimatecs)
+- 🌱 I’m currently learning ...(Algorethms-)
+- 📫 How to reach me on (gmail:adhamnasr396@gmail.com-(+201021368808)-Adhamnasr on linkedin).
+- ⚡ Fun fact: I love Candies.
